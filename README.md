@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GAGJ970717HNLRZN08
+GAGJ970717HNLRZN08
